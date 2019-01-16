@@ -3,9 +3,9 @@
 
 _If you do not have a existing website/blog, I suggest…_
 
-⋅⋅*Tumblr.com (free)
+⋅⋅* Tumblr.com (free)
 
-⋅⋅*Wordpress.com
+⋅⋅* Wordpress.com
   
 _If you want a custom domain_(ie. somethingsomthing.com), you can purchase and register your domain name through…. (this costs money)
 ⋅⋅*dreamhost.com (domain registration and remote server hosting)
