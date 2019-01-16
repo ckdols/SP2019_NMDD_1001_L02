@@ -3,31 +3,26 @@
 
 _If you do not have a existing website/blog, I suggest…_
 
-* Item 1
-* Item 2
- * Item 2a
- * Item 2b
+* Tumblr.com (free)
 
-⋅⋅* Tumblr.com (free)
-
-⋅⋅* Wordpress.com
+* Wordpress.com
   
 _If you want a custom domain_(ie. somethingsomthing.com), you can purchase and register your domain name through…. (this costs money)
 ⋅⋅*dreamhost.com (domain registration and remote server hosting)
 ⋅⋅*godaddy.com (domain registration and remote server hosting)
 
 _If you want to start a quick and pretty portfolio for the class consider…._ (this cost money, but they have custom templates for ease)
-⋅⋅*CargoCollective
-⋅⋅*Wix
-⋅⋅*SquareSpace
+* CargoCollective
+* Wix
+* SquareSpace
   
 **Read & Respond:**
 
 [The Medium Is the Message](http://www.chesterdols.com/wp-content/uploads/2018/09/mediummessage_mcluhan.pdf)
 Respond to the reading and post to your blog.
 
-⋅⋅*What thoughts or issues did you have with anything he may have said?  Do you agree or disagree? How do his theories relate to current _new media_? (150 words.)
-⋅⋅*Choose an artist, designer, or project.  Think critically about their chosen media.  Explain why they do (or do not) use the appropriate media/medium for their work.    (500 words at least…….)
+* What thoughts or issues did you have with anything he may have said?  Do you agree or disagree? How do his theories relate to current _new media_? (150 words.)
+* Choose an artist, designer, or project.  Think critically about their chosen media.  Explain why they do (or do not) use the appropriate media/medium for their work.    (500 words at least…….)
 
 
 
