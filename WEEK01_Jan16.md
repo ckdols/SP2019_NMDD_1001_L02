@@ -3,6 +3,11 @@
 
 _If you do not have a existing website/blog, I suggest…_
 
+* Item 1
+* Item 2
+ * Item 2a
+ * Item 2b
+
 ⋅⋅* Tumblr.com (free)
 
 ⋅⋅* Wordpress.com
