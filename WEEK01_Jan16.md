@@ -1,5 +1,6 @@
 
-Make a personal blog or web page.   Please send me the URL for your website via email as soon as you have one.  This ‘blog’ will be used to submit weekly assignments and documentation for your projects.
+_Make a personal blog or web page_. Please send me the URL for your website via email as soon as you have one.  This _blog_ will be used to submit weekly assignments and documentation for your projects.
+
 This can be a dedicated page from an existing personal website/blog if you already have one.
 If you do not have a existing website/blog, I suggest…
 -Tumblr.com (free)
