@@ -18,11 +18,11 @@
 
 [Lea](https://lnaisberg.github.io/leasblog.github.io/)
 
-[Phil](Phillip-gregor.squarespace.com)
+[Phil](Phillip-gregor.squarespace.com) X
 
 [Lydia](https://lydiaexploringnewmedia.tumblr.com/)
 
-[Hannah](hmelillo.tumblr.com)
+[Hannah](https://hmelillo.tumblr.com)
 
 [Jordan](https://theatoyourq.blog/)
 
