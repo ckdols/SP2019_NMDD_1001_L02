@@ -10,7 +10,7 @@
 
 [Jacqueline](https://jkaisernmdd.tumblr.com/)
 
-[Giovanna](https://www.wix.com/website/builder?referral=split%20page&vertical=blog&storyId=9b9e8aae-817d-4c9c-bed9-b3af54e12bb6#!/builder/story/9b9e8aae-817d-4c9c-bed9-b3af54e12bb6:55608f57-3a99-489f-b503-c890d9a53ca7) X
+[Giovanna](https://gnembrini.wixsite.com/giovannanm) 
 
 [Spencer](https://nmddblog.tumblr.com/)
 
@@ -18,7 +18,7 @@
 
 [Lea](https://lnaisberg.github.io/leasblog.github.io/)
 
-[Phil](Phillip-gregor.squarespace.com) X
+[Phil](https://Phillip-gregor.squarespace.com) X
 
 [Lydia](https://lydiaexploringnewmedia.tumblr.com/)
 
