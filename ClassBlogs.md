@@ -1,6 +1,6 @@
 [Will](https://williamsmithdesign.tumblr.com)
 
-[Eileen](https://wordpress.com/view/eileenmdd.home.blog/16) X
+[Eileen](https://eileenmdd.home.blog/2019/01/23/response-the-medium-is-the-message/)
 
 [Emily](https://emilydolphin.home.blog/blog-post-1/?frame-nonce=b3ead0c065)
 
@@ -18,7 +18,7 @@
 
 [Lea](https://lnaisberg.github.io/leasblog.github.io/)
 
-[Phil](https://Phillip-gregor.squarespace.com) X
+[Phil](https://Phillip-gregor.squarespace.com)
 
 [Lydia](https://lydiaexploringnewmedia.tumblr.com/)
 
