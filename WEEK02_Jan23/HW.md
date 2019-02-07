@@ -7,7 +7,7 @@ _This part of the assignment for next week was removed from this weeks work...._
 
 ~~**_Assignment:_** Please post image to your blog.~~
 
-~~Make a photo collage poster of something which inspires you.  You can draw inspiration from your favorite book, poem, movie, TV show, story, event, person, celebrity, icon, place, destination etc.  These photo collages, should be primarily constructed from found and personal photos.  You can also use patterns, textures, and other drawings to create supplementary content. ~~
+~~Make a photo collage poster of something which inspires you.  You can draw inspiration from your favorite book, poem, movie, TV show, story, event, person, celebrity, icon, place, destination etc.  These photo collages, should be primarily constructed from found and personal photos.  You can also use patterns, textures, and other drawings to create supplementary content.~~
 
 ~~The point of the assignment is to exercise the use of the Principles of Design and practice using Photoshop and Illustrator workflow.  Give yourself time to play with the programs.  A nicely done poster could take up to 10 hrs of work.  Simple things can take longer than you expect!!!  Pay close attention to your use of Color, Space, Balance, Repetition, Rhythm, Movement, Contrast, and Scale.  Also be critical of your use of Typography, Alignment, Proximity, Hierarchy, and Consistency.  These posters should be graphic and nicely done with intent.~~
 
