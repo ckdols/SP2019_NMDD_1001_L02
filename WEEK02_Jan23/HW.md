@@ -1,5 +1,5 @@
 
-~~_This part of the assignment for next week was removed from this weeks work...._~~
+_This part of the assignment for next week was removed from this weeks work...._
 
 ~~[Today's Slides](https://docs.google.com/presentation/d/1n_oox1DpwAuGRkoKTaMMzH_RU2r3s__RzNi3l5U-ZaU/edit?usp=sharing)~~
 
