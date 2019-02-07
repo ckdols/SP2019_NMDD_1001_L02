@@ -30,5 +30,5 @@
 
 [Liam](https://lryder4.myportfolio.com/new-media-and-design)
 
-[Tori](www.toripante.com) X
+[Tori](https://www.toripante.com) X
 
