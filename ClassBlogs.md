@@ -1,6 +1,6 @@
 [Will](https://williamsmithdesign.tumblr.com)
 
-[Eileen](https://eileenmdd.home.blog/2019/01/23/response-the-medium-is-the-message/)
+[Eileen](https://eileenmdd.home.blog)
 
 [Emily](https://emilydolphin.home.blog/blog-post-1/?frame-nonce=b3ead0c065)
 
