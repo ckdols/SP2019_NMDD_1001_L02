@@ -26,7 +26,7 @@
 
 [Jordan](https://theatoyourq.blog/)
 
-[Adam](https://www.tumblr.com/blog/abronba)
+[Adam](https://abronba.tumblr.com/)
 
 [Liam](https://lryder4.myportfolio.com/new-media-and-design)
 
